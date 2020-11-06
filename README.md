@@ -49,6 +49,6 @@ Gabriel
 
 > **Email:** `csfelix08@gmail.com`
 
-> **Linkedin:** `linkedin.com/in/gabriel-felix-dos-santos-7443151bb/`
+> **Linkedin:** `linkedin.com/in/csfelix/`
 
 > **Instagram:** `instagram.com/c0deplus/`
